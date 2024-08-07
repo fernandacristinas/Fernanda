@@ -1,1 +1,3 @@
 # Fernanda
+o meu nome e Fernanda moro perto do toloko e do bar e moro na vila sapo e amo a minha rua e tenho 2 cachorra,e tenho bastante amizade com os meus vizinhos e adoro minha familia e meus primos e primas.
+E adoro dormir,passear,ir pra festas,ir na igreja,ir para escola,e amo tiktok e youtube e etc...
